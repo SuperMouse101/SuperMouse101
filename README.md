@@ -1,3 +1,3 @@
 - 👋 Hi, I’m @SuperMouse101
-- 👀 I’m interested in Minecraft.
-- 📅 I will one day upload Minecraft mods here.
+- 👀 I’m like to play Minecraft and World of Warcraft.
+- 📅 I might upload Minecraft of WoW mods one day, but that day is not today.
